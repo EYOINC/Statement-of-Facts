@@ -1,8 +1,8 @@
 # Statement-of-Facts
 Things you should know
- 1. The Moon was Put there
- 2. How planets are really formed
- 3. The equation to cure all diseases
- 4. What happens when you die
- 5. 
+FACT 1. The Moon was Put there
+FACT 2. How planets are really formed
+FACT 3. The equation to cure all diseases
+FACT 4. What happens when you die
+FACT 5. 
  
