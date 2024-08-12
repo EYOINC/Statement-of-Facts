@@ -4,7 +4,7 @@ FACT 1. The Moon was Put there
 FACT 2. How planets are really formed
 FACT 3. The equation to cure all diseases
 FACT 4. Your Soul is Virtious
-FACT 6. Follow your (SOUL) or conchens, To gain needed virtue, or buy VirtueCoin from me for Virtue.
+FACT 6. Follow your (SOUL) or conscience, To gain needed virtue, or buy VirtueCoin from me for Virtue.
 FACT 7. I will make virtuecoin, actually Virtious by using the money paid by yall to save the earth.( $20 a coin, per person / Every person, Every Soul ) Hopefully everyone contributes so they gain virtue. The contribution makes your soul Virtious. Because nothings more virtious than saving the planet you live on. (Virtuecoin
 reference) 
 
